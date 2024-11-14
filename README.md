@@ -1,0 +1,2 @@
+# sepertinya-sama
+okde
